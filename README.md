@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @4lvinabdvl
+- 👀 I’m interested in coding, music, chess, and literature.
+- 🌱 I’m currently learning Python.
+- 💞️ I’m looking to collaborate on nothing, yet.
+- 📫 How to reach me: I have a Discord account with the same username as this one.
+- 😄 Pronouns: He / Him
+- ⚡ Fun fact: I use Arch ( based distro ) BTW.
