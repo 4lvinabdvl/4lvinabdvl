@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on nothing, yet.
 - 📫 How to reach me: I have a Discord account with the same username as this one.
 - 😄 Pronouns: He / Him
-- ⚡ Fun fact: I use Arch ( based distro ) BTW.
+- ⚡ Fun fact: I use Arch BTW.
